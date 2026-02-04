@@ -10,7 +10,7 @@ https://36haxb.onelink.me/MoVT/jdlo2u2a
 +QQ：3924157244  
 +微信：chenguitai  
 
-快连官网买会员网址，在快连VPN的APP端创建好帐号后再来登录网址来充值会员。  
+快连官网买会员网址，在快连VPN的APP端创建好帐号后再来登录网址来充值会员，适合于远程代充值。  
 https://www.maifot.com/login
 
 免费VPN，免费加速器，梯子下载试用
